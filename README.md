@@ -1,6 +1,7 @@
 # WTFast Coupon Code 2025 | Get 50% Discount 🔥
 
-[https://d2gdx5nv84sdx2.cloudfront.net/uploads/t4ot9hcm/marketing_asset/banner/14951/7034356085435245322.jpg](https://www.wtfast.com/?fpr=shadow)
+![7034356085435245322](https://github.com/user-attachments/assets/5b7571b4-ed18-4f30-9c14-8c0a61a43649)
+
 
 [WTFast](https://www.wtfast.com/?fpr=shadow) is a popular service designed to optimize your internet connection for gaming, reducing lag and improving overall performance.
 
