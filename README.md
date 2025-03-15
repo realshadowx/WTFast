@@ -12,7 +12,7 @@ Whether you’re a casual gamer or a pro, you’ll want to take advantage of the
 ## WTFast Coupon Code - 25% Off First 12 Months
 Get 12 months of plan at a 25% discount today! This is a limited-time offer, so grab it now folks. Activate the deal now.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeviYTXy8HD7Ect_BkNOd__ecIONJQ79NqJLHXJd1QacKeN-RV7Tv70SbnlDH6rDx8YqBc2BnCbxraXNt5i_djQXTCKKCGckcbdECFn2VzBp31uiqk-PJqVQ8aRiCvLbVzlzvkCBg?key=lc9Gos5Jw_l3SY7-RaiuPXMO)](https://www.wtfast.com/?fpr=shadow)
+[![New Project (22) (1)](https://github.com/user-attachments/assets/31a6ed16-05ad-4d7c-8674-ef117b16f867)](https://www.wtfast.com/?fpr=shadow)
 
 ## Top WTFast Coupon Codes for March 2025
 
