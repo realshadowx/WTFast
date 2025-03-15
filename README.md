@@ -64,7 +64,7 @@ During checkout, you’ll see a box where you can enter your coupon code. Simply
 
 Once the code is applied, confirm that the discount has been reflected in your total price. Then, proceed to complete your purchase and start enjoying enhanced gaming performance!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeviYTXy8HD7Ect_BkNOd__ecIONJQ79NqJLHXJd1QacKeN-RV7Tv70SbnlDH6rDx8YqBc2BnCbxraXNt5i_djQXTCKKCGckcbdECFn2VzBp31uiqk-PJqVQ8aRiCvLbVzlzvkCBg?key=lc9Gos5Jw_l3SY7-RaiuPXMO)](https://www.wtfast.com/?fpr=shadow)
+[![New Project (22) (1)](https://github.com/user-attachments/assets/31a6ed16-05ad-4d7c-8674-ef117b16f867)](https://www.wtfast.com/?fpr=shadow)
 
 ## Pricing Information: How Much You Can Save
 
@@ -86,7 +86,7 @@ WTFast offers several pricing tiers to suit different gaming needs. Here’s a b
 
 As you can see, you can save a lot when using these coupon codes—whether you're signing up for the first time or upgrading your plan!
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeviYTXy8HD7Ect_BkNOd__ecIONJQ79NqJLHXJd1QacKeN-RV7Tv70SbnlDH6rDx8YqBc2BnCbxraXNt5i_djQXTCKKCGckcbdECFn2VzBp31uiqk-PJqVQ8aRiCvLbVzlzvkCBg?key=lc9Gos5Jw_l3SY7-RaiuPXMO)](https://www.wtfast.com/?fpr=shadow)
+[![New Project (22) (1)](https://github.com/user-attachments/assets/31a6ed16-05ad-4d7c-8674-ef117b16f867)](https://www.wtfast.com/?fpr=shadow)
 
 ## About WTFast
 
